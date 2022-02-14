@@ -1,0 +1,1 @@
+# GinyamaSyouta.github.io
